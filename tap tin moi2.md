@@ -1,2 +1,0 @@
-Khong co gi 
-
